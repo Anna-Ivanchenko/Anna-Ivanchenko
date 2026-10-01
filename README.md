@@ -66,9 +66,9 @@ My contribution:
 
 🇺🇦 Ukrainian — Native
 
-🇵🇱 Polish — A2
+🇵🇱 Polish — B1
 
-🇬🇧 English — A1
+🇬🇧 English — A2
 
 ---
 
